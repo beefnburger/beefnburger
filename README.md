@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @beefnburger martin/peeps
-- 😄 Pronouns: he/him
+-  Hi, I’m @beefnburger peeps/martin/henisse
+-  Pronouns: he/him
 
 <!---
 beefnburger/beefnburger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
