@@ -3,4 +3,4 @@
 - (https://beefnburger.straw.page/) <-- check out my strawpage for more info!! :alien: :flying_saucer:
 - https://beefnburger.atabook.org/ <-- please sign my book 😊 
   
-![External GIF](https://tenor.com/view/paul-cotter-new-jersey-devils-gif-9321531990357086423)
+![paul-cotter-new-jersey-devils](https://github.com/user-attachments/assets/48db9b0e-c487-46e1-ab33-015070583cf8)
